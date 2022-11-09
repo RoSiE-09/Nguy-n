@@ -1,2 +1,0 @@
-# Nguy-n
-cute, smart
